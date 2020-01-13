@@ -2,6 +2,8 @@
 
 福利视频站
 https://www.dulexporn.com
-
-福利导航站
-https://www.zyssnh.com
+https://cbcb69.xyz
+https://xb69xb.xyz
+https://mgibc.xyz
+https://tnlzx.xyz
+https://69kb.xyz
