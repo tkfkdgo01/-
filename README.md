@@ -7,12 +7,4 @@ https://www.oxbbox.com
 福利视频1
 https://www.dulexporn.com
 福利视频2
-https://xb69xb.xyz
-福利视频3
-https://69kb.xyz
-福利视频4
-https://cbcb69.xyz
-福利视频5
-https://mgibc.xyz
-福利视频6
-https://tnlzx.xyz
+https://www.wdwz.net
