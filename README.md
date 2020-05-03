@@ -7,6 +7,12 @@ https://www.43h99.com
 极速线路
 https://www.oxbbox.com
 福利视频1
-https://www.dulexporn.com
+https://www.dulexp.com
 福利视频2
 https://www.wdwz.net
+福利视频3
+https://www.eadak.com
+福利视频4
+https://www.69icb.com
+福利视频5
+https://www.zyssnh.com
